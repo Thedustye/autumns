@@ -14,3 +14,5 @@
 迪克免费资源下载站*：http://deekerresource.vus.tax/
 
 欢迎进去白嫖资源！
+
+# 获得联系方式具体看后面
